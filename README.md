@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **prerana.bhandari99@gmail.com**
 
-- 📄 Know about my experiences [View My Resume Here]([https://drive.google.com/file/d/1RgkZuCs-0Afmm-6QeI8G7cscmoDaVevy/view?usp=sharing](https://drive.google.com/file/d/10Ks9QB56MJbrIyTlfutvJEZxPQQgz9Ht/view?usp=sharing))
+- 📄 Know about my experiences ([https://drive.google.com/file/d/1RgkZuCs-0Afmm-6QeI8G7cscmoDaVevy/view?usp=sharing](https://drive.google.com/file/d/10Ks9QB56MJbrIyTlfutvJEZxPQQgz9Ht/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
